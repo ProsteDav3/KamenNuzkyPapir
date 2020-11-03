@@ -1,0 +1,2 @@
+# KamenNuzkyPapir
+Well known game
